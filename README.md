@@ -3,4 +3,4 @@
 
 영상업로드: 2022.11.1
 
-[link](https://youtu.be/mpt_I6Q7pK4)https://youtu.be/mpt_I6Q7pK4
+[link](https://youtu.be/mpt_I6Q7pK4)
